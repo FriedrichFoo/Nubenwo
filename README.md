@@ -3,12 +3,16 @@ Friedrich's Dreamland.
 
 To make the world a better place, one not only shoulders the responsibility and dares not face to the difficulty, but has an insight into the very secrets buried under reality.
  
- So, ***nice to meet you!***
+So, ***nice to meet you!***
  
- Mobile phone: **18810987938**
+Name: **Rui Fu**
  
- E-mail address: **594002621@qq.com**
+English name: **Friedrich Foo**
  
- **So** long as men can breathe, or eyes can see,
+Mobile phone: **18810987938**
  
- **So** long lives this, and this gives life to thee.
+E-mail address: **594002621@qq.com**
+ 
+**So** long as men can breathe, or eyes can see,
+ 
+**So** long lives this, and this gives life to thee.
